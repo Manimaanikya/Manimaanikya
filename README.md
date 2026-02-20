@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working as a Lecture 
+I'm currently working as a Lecturer 
 
 
 ## 🌐 Socials:
